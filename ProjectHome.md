@@ -1,0 +1,1 @@
+thepolitics is a social net where active members are rulers of their ideal countries and citizens are voters.
